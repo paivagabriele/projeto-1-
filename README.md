@@ -10,5 +10,6 @@
 
 _músicas muito boas_
 
+_ela é uma perfeita cantora_
 
 ![jgs](https://media1.tenor.com/m/eiwPrhU0AzoAAAAd/marina-sena-marina-sena-que-tal.gif)
